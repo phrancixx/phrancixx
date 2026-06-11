@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @phrancixx
-- 👀 I’m a newbie and interested in coding,
+- 👀 I’m a newbie and interested in Data Analytics,
 - 🌱 I’m seriously open to learning 
 - 💞️ I’m looking to collaborate with you on anything you are willing to teach me
 - 📫 you can reach me on WhatsApp via +2348036168079
